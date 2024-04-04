@@ -14,4 +14,4 @@ Obrigada pela atenção!
 
 :)
 
-Apresentação: https://drive.google.com/uc?id=1OKpwoaWgcseCJ8gvDJgAHaPpqCVj6yRe&export=download 
+Apresentação: https://drive.google.com/file/d/1OKpwoaWgcseCJ8gvDJgAHaPpqCVj6yRe/view?usp=drive_link 
